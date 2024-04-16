@@ -1,2 +1,4 @@
 # Cry-Babies
-This repo is dedicated to all the cry babies trying toreport my apps
+This repo is dedicated to all the cry babies trying to report my apps
+
+Please, cry harder lmfao! My app may have been taken down for the moment but, I assure you it will be back up shortly and I have reported everyone invoved for harassment, thanks and have a great day
